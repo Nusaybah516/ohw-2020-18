@@ -1,8 +1,24 @@
 Team Members
+
+
+
+
 Ogundipe Michael
+
+
+
+
 Olumide Nwosu
+
+
+
 Christopher Nwosu-Madueke
+
+
+
 Nusaybah Fuad-Gafar
+
+
 
 
 
